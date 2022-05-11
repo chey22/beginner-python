@@ -1,1 +1,1 @@
-<h2>🙈nothing to read here, sorry🙈</h2>
+<h2>🙈sorry, nothing to read here</h2>
